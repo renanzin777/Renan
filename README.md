@@ -3,8 +3,8 @@ renan silveira
 
 estudo no caetano
 
-gosto de jogar bola
+jogar bola
 
-ouço muita musica
+@renan.silveira.xx
 
 ![](https://media1.tenor.com/m/EW0QrCEmLqoAAAAC/dancinha-dancinhaboladaadriano.gif)
